@@ -1,0 +1,1 @@
+# Perguntas frequentes em inglês
